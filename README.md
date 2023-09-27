@@ -7,3 +7,6 @@
 
 - If you have savings of your 6 months expences you are not in middle class.    
 
+# Day - 1 
+
+- change your surrounding. 
